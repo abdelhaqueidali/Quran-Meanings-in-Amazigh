@@ -1,0 +1,1 @@
+# Quran-Meanings-in-Amazigh
